@@ -1,0 +1,2 @@
+Initially, i need to put a lot of effort for practicals which can be challenging and usually achieve a low accuracy. As the course progresses, exposure to a variety of tasks helps in developing a better understanding of certain types of tasks.
+This comes from a deeper understanding of my own working pace and the complexities involved in different tasks. Regular practice, facing diverse challenges, and learning from past experiences are key factors to improve.
